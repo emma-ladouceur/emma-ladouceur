@@ -2,7 +2,7 @@
 
 I'm Emma Ladouceur (she/her)
 
-I'm a postdoc at the German Centre for Integrative Biodiversity Research (iDiv) - https://emma-ladouceur.github.io/conservation/
+I'm an Assistant Professor, Biology, Climate Change and Adaptation at University of Prince Edward Island - website to be updated - https://emma-ladouceur.github.io/conservation/
 
 🌱 🌍 🌱 We are building the [Global Restore Project (GRP)](https://www.globalrestoreproject.com/)
 
