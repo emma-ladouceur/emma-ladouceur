@@ -6,5 +6,5 @@ I'm an Assistant Professor, Biology, Climate Change and Adaptation at University
 
 🌱 🌍 🌱 We are building the [Global Restore Project (GRP)](https://www.globalrestoreproject.com/)
 
-💬  Reach out for a chat anytime via my personal website or the GRP !
+💬  Reach out for a chat anytime - easy to look me up at my institution!
 
